@@ -1,8 +1,8 @@
 ### Boas vindas ao meu perfil 🤎
 
 Meu nome é Maria Eduarda Menezes
-
-Sou do 1°C 
+ 
+Minha turma é o 1°C 
 
 mariaeduardamenezes@escola.pr.gov.br
 

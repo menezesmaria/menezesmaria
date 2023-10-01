@@ -1,7 +1,9 @@
 ### Boas vindas ao meu perfil 🤎
 
 Meu nome é Maria Eduarda Menezes
+
 Sou do 1°C 
+
 mariaeduardamenezes@escola.pr.gov.br
 
 Uma curiosidade minha é que amo sushi e a cor rosa!
